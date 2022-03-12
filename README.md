@@ -1,1 +1,1 @@
-I'm just here until my fashion career takes off.
+I'm just here until my diva career takes off.
